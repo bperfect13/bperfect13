@@ -3,7 +3,7 @@ currently a student pursuing a degree in Information Technology at
 Mumbai University.</h3>
 <br>
 # 💫 About Me:
-write about yourself
+There are lot of things about myself that i would like to share but now here i will only sayy my likings and all soo first  of all: i like watching animee  and somehwere in soprts like uk karate , running ,fottball , like  really like to keep myself busy alot sitting a t one place and all irritates me alot .
 <br>
 <br>
 # 📊 GitHub Stats:
